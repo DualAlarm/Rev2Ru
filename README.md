@@ -1,0 +1,1 @@
+# GuiltyGearXrdRev2RuLocalization
